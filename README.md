@@ -1,0 +1,2 @@
+# Data-Entry-
+Hello there! Thank you for visiting my profile. I am an experienced freelancer with proven experience in Ecommerce customer support, Data Entry , Social Media Moderation and Lead Generation opportunities. My goal is to provide the best outcome possible for my clients. I can Provide this service: 1.Data Entry copy typing 2.File conversion From PDF to Excel , JPEG to word,Word to Excel, PDF to Word Documents etc. 3.PDF to any copy writing 4.Copy typing 5.Sales 6.Google Ads 7.Project Plan
